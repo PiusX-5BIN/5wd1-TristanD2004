@@ -4,6 +4,8 @@ Hägar The Giant Viking
 
 Voor een brandje groot of klein, moet je bij Hägar zijn!
 
+--------------------------------------------------------------------------------
+
 # Profiel
 
 ![Hägar The Giant Viking](https://faceswaponline.com/wp-content/uploads/Vikingsseason4spoiler-e8690ba0b1983ac025f6abd11556179a.jpg)
@@ -11,6 +13,8 @@ Voor een brandje groot of klein, moet je bij Hägar zijn!
 Hägar The Giant Viking
 
 Hägar maakt vuren die mensen nodig hebben, zoals kampvuren of als je vuur nodig hebt om te koken. Hij kan dit gewoon doen door te spuwen, je ziet hem al van ver aankomen, dus hou je paraat!
+
+--------------------------------------------------------------------------------
 
 ## Recensies
 
